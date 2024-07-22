@@ -2,7 +2,8 @@
 
 ## How I'd define myself... literally! 😁
 
-<img width="643" alt="image" src="https://github.com/user-attachments/assets/bcf96aa6-0e4d-46de-a5dc-6fd8d0f557a7">
+<img width="539" alt="image" src="https://github.com/user-attachments/assets/55827812-ad06-4cf6-8158-6d4d33c1cfa9">
+
 
 
 
