@@ -1,4 +1,11 @@
-## Hi there 👋
+# </t> Hi there 👋          It's Shreya Shivanand Pandey! 👩‍💻👩‍🎓
+
+## How I'd define myself... literally! 😁
+
+<img width="643" alt="image" src="https://github.com/user-attachments/assets/bcf96aa6-0e4d-46de-a5dc-6fd8d0f557a7">
+
+
+
 
 <!--
 **ShreyaPanday/ShreyaPanday** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
